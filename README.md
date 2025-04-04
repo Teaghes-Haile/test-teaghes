@@ -1,3 +1,3 @@
 # test-teaghes
 my work
-i love programming
+i can handle everything through god who strengthen me
